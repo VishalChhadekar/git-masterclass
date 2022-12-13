@@ -1,0 +1,1 @@
+- Lucifer says, "I can't have Kunal". He must go to heaven. 
